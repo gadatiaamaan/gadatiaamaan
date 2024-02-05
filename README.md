@@ -3,9 +3,9 @@
 
 - 👨‍💻 All of my projects are available at [https://amaangadatiaportfolio.netlify.app](https://amaangadatiaportfolio.netlify.app)
 
-- 📫 How to reach me **amaangadatia@gmail.com**
+- 📫 You can reach me at **amaangadatia@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view](https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view)
+- 📄 Learn me about my experiences [https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view](https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
