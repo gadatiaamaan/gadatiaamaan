@@ -5,7 +5,7 @@
 
 - 📫 You can reach me at **amaangadatia@gmail.com**
 
-- 📄 Learn me about my experiences [https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view](https://drive.google.com/file/d/1fAptngMQvilUuIRpsIg48uG0k2wAKAtw/view)
+- 📄 Learn me about my experiences [https://drive.google.com/file/d/1ERkdSVJOClK0Y1NOaalBceyk_qGb8_Wy/view](https://drive.google.com/file/d/1ERkdSVJOClK0Y1NOaalBceyk_qGb8_Wy/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
