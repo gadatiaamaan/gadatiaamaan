@@ -1,5 +1,5 @@
 <h1 align="center">Hi! My name is Amaan</h1>
-<h3 align="center">A aspiring Software Engineer!</h3>
+<h3 align="center">An aspiring Software Engineer!</h3>
 
 - 👨‍💻 All of my projects are available at [https://amaangadatiaportfolio.netlify.app](https://amaangadatiaportfolio.netlify.app)
 
